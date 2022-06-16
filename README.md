@@ -1,2 +1,3 @@
-Hi i'm EMNL ex-member of ________, currently working on personal projects.
-Don't try text me about any old work, i will not answer.
+hi, im not sure how you came here, but i think that was mistake.
+
+* Be the freedom that they need, but don't wait for any tribute, they are all greedy and will never thank you.
